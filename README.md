@@ -1,1 +1,1 @@
-https://cafestro.in/restaurant/pizza-burger
+https://cafestro.in/restaurant/mr-tandoor
