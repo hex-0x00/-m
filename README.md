@@ -1,1 +1,1 @@
-https://cafestro.in/restaurant/the-pizza-burger-co
+https://cafestro.in/restaurant/pizza-burger
